@@ -18,5 +18,5 @@
 </details>
 
 #### Contact
-- **Email:** [hikiki0220@icloud.com](mailto:hikiki0220@icloud.com)
+- **Email:** [me@st4rain.com](mailto:me@st4rain.com)
 - **Discord:** `st4rain_`
